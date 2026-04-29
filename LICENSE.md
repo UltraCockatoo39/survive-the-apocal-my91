@@ -1,4 +1,4 @@
-
+survive the apocalypse Script elite is the best survive the apocalypse Script, featuring auto-collect and no clip. Safe and powerful for all your
 
 
 
